@@ -6,4 +6,4 @@
 ㅤ
 ㅤ
 ㅤ
-                                       [ata](https://yvoisen.atabook.org)    ;    [straw](https://yvoisen.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[straw](https://yvoisen.straw.page)
