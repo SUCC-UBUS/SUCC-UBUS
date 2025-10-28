@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=yvoisen&color=921b44&style=for-the-badge&label=.+𝗹+𝘂+𝘀+𝘁+.&base=2274)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=yvoisen&color=921b44&style=for-the-badge&label=.+𝗹+𝘂+𝘀+𝘁+.&base=0)
 ㅤ
 ㅤ
 ㅤ
