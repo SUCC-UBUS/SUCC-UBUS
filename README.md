@@ -17,9 +17,4 @@ $${\color{#63062e}i \space do \space not \space check \space who \space i \space
 
 
 
-
-
-
-
-
                                       [𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
