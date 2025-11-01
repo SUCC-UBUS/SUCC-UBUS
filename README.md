@@ -7,4 +7,7 @@
 ㅤ
 ㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
-$${\color{#8e0640}more}$$
+ㅤ
+ㅤ
+ㅤ
+$${\color{#8e0640}more info would be on my main account , @yvoisen}$$
