@@ -10,4 +10,4 @@
 ㅤ
 ㅤ
 ㅤ
-\space \space \space \space \space \space \space $${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
+$${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
