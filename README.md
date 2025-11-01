@@ -6,4 +6,12 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[straw](https://yvoisen.straw.page)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
+ㅤ
+ㅤ
+ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#8e0640}more info would be on my main account , @yvoisen}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#63062e}i'm not apart of the hb/hh fandom , i only like a singular character .}$$
+ㅤ
+ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#3f031c}i do not check who i follow , lmk if i follow anyone problematic either through strawpage or on my ata .}$$
