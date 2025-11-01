@@ -6,9 +6,9 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
-ㅤ
-ㅤ
 <p align="center">
 $${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
+$${\color{#63062e}i'm \space not \space apart \space of \space the \space hb/hh \space fandom, \space i \space only \space like \space a \space singular \space character.}$$
+$${\color{#3f031c}i \space do \space not \space check \space who \space i \space follow, \space let \space me \space know \space if \space i \space follow \space anyone \space problematic. \space either \space on \space my \space straw \space or \space ata.}$$
 </p>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
