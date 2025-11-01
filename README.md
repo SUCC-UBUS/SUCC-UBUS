@@ -12,3 +12,11 @@
 <p align="center">
 $${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
 </p>
+
+<p align="center"
+$${\color{#63062e}i'm \space not \space apart \space of \space the \space hb/hh \space fandom, \space i \space only \space like \space a \space singular \space character.}$$
+</p>
+
+<p align="center"
+$${\color{#3f031c}i \space do \space not \space check \space who \space i \space follow, \space let \space me \space know \space if \space i \space follow \space anyone \space problematic. \space either \space on \space my \space straw \space or \space ata.}$$
+</p>
