@@ -9,5 +9,6 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
 ㅤ
 ㅤ
-ㅤ
-                           $${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
+<p align="center">
+$${\color{#8e0640}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
+</p>
