@@ -1,7 +1,11 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=succ-ubus&color=89123b&style=for-the-badge&label=.+𝗹+𝘂+𝘀+𝘁+.&base=4742)
 
 
+
+
                                       ![](https://cdn.discordapp.com/attachments/934596480310853685/1432520891639795873/Untitled149_20251028000147_edit_59857082968469.png?ex=6904a64b&is=690354cb&hm=0d2da4cb3910704ba7024623590a9cd3eca25571f2af2df6823c5e8b443ddc77&=&format=webp&quality=lossless&width=500&height=500)
+
+
 
 
 <p align="center">
