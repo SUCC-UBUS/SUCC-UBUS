@@ -14,4 +14,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#63062e}i'm not apart of the hb/hh fandom , i only like a singular character .}$$
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#3f031c}i do not check who i follow , lmk if i follow anyone problematic either through strawpage or on my ata .}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#3f031c}iㅤdoㅤnotㅤcheckㅤwhoㅤiㅤfollow,ㅤlmkㅤifㅤiㅤfollowㅤanyoneㅤproblematicㅤeitherㅤthroughㅤstrawpageㅤorㅤonㅤmyㅤata.}$$
