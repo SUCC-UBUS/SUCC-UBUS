@@ -8,4 +8,4 @@ $${\color{#8e0640}i'm \space not \space apart \space of \space the \space hb/hh 
 $${\color{#63062e}i \space do \space not \space check \space who \space i \space follow, \space lmk \space if \space i \space follow \space anyone \space problematic. \space either \space on \space my \space straw \space or \space ata.}$$
 </p>  
 
-                                      [𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
+                                               [𝙰𝚃𝙰](https://yvoisen.atabook.org)ㅤㅤ;ㅤㅤ[𝚂𝚃𝚁𝙰𝚆](https://yvoisen.straw.page)
