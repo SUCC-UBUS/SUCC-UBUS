@@ -10,8 +10,4 @@
 ㅤ
 ㅤ
 ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#8e0640}more info would be on my main account , @yvoisen}$$
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#63062e}i'm not apart of the hb/hh fandom , i only like a singular character .}$$
-ㅤ
-ㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#3f031c}iㅤdoㅤnotㅤcheckㅤwhoㅤiㅤfollow,ㅤlmkㅤifㅤiㅤfollowㅤanyoneㅤproblematicㅤeitherㅤthroughㅤstrawpageㅤorㅤonㅤmyㅤata.}$$
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ$${\color{#8e0640}more}$$
