@@ -11,7 +11,7 @@
 <p align="center">
 $${\color{#a93f79}more \space info \space will \space be \space on \space my \space main \space account, \space @yvoisen}$$
 
-$${\color{#8e0640}i'm \space NOT \space apart \space of \space the \space hb/hh \space fandom, \space i \space only \space like \space one \space singular \space character.}$$
+$${\color{#8e0640}i'm \space NOT \space apart \space of \space the \space hb/hh \space fandom, \space i \space only \space like \space a \space few \space characters.}$$
 
 $${\color{#63062e}i \space do \space not \space check \space who \space i \space follow, \space lmk \space if \space i \space follow \space anyone \space problematic. \space either \space on \space my \space straw \space or \space ata.}$$
 </p>
